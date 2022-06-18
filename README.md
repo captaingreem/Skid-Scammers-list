@@ -1,10 +1,10 @@
 ## 👋 Welcome
 ### Today I present to you my Expose list of **all** scammers/skids on the market for Crypto/NFT scams.
 This repositories will have **2** parts:
-#### ➡ Scammer list
-#### ➡ Dualwallet
+#### → Scammer list
+#### → Dualwallet
 
-
+---
 
 ## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [Github](https://github.com/devcryptoscem)
 ### To start, this guy scammed +200 people from his shop, sellix shop got terminated 2 times [first](https://cryptoscem.sellix.io) | [second](https://cryptoscemm.sellix.io) for fake reviews and scam. **⚠️ Don't trust this indian**
