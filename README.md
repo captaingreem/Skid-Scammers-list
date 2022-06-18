@@ -3,6 +3,7 @@
 
 
 - [CryptoScem](https://github.com/cryptoscemdev)
+https://i.ibb.co/tYstNtq/chrome-Xjg-Whzyopi.png
 To start, this guy scammed +200 people from his shop, sellix shop got terminated 3 times [1](https://cryptoscem.sellix.io) [2](https://cryptoscemm.sellix.io) for fake reviews and scam.
 
 - [C4lme / CCalme](https://github.com/C4lme)
