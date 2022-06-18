@@ -7,7 +7,7 @@ This repositories will have **2** parts:
 
 ---
 
-## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [Github](https://github.com/devcryptoscem)
+## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [2nd Github](https://github.com/devcryptoscem)
 ### To start, this guy scammed +200 people from his shop, sellix shop got terminated 2 times [first](https://cryptoscem.sellix.io) | [second](https://cryptoscemm.sellix.io) for fake reviews and scam. **⚠️ Don't trust this indian**
 
 ![cryptoscem](https://user-images.githubusercontent.com/103531256/174454376-e6d126e9-7cd0-46ba-9224-4c157026c36c.png)
@@ -30,8 +30,7 @@ This repositories will have **2** parts:
 
 ---
 
-## - `0xServices`
-### *Deleted*
+## - `0xServices` *Deleted*
 ### Selling Github free codes with backdoor, scam and backdoor codes
 
 
@@ -40,7 +39,7 @@ This repositories will have **2** parts:
 
 ---
 
-## - `Shade0x`[Github](https://github.com/Shade0x/NFT-Drainer-Website)
+## - `Shade0x` [Github](https://github.com/Shade0x/NFT-Drainer-Website)
 ### no shop, random guy but backdoor code on github.
 
 
@@ -49,11 +48,11 @@ This repositories will have **2** parts:
 
 ---
 
+## - `NFTDrainerscam` [Github](https://github.com/CryptoRekt88) | [2nd Github](https://github.com/NFTstipsandtricks)
+### (same person)
+### Selling so fucking expensive backdoored code 
 
-
-
-
-
+![NFTDrainerscam](https://user-images.githubusercontent.com/103531256/174455814-a78c7e3d-8928-4ed1-a635-f6ad67b2b09f.png)
 
 
 
