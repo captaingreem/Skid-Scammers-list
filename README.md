@@ -4,7 +4,7 @@
 
 - `CryptoScem` 
 [Github](https://github.com/cryptoscemdev) | [Github](https://github.com/devcryptoscem)
-To start, this guy scammed +200 people from his shop, sellix shop got terminated 3 times [1](https://cryptoscem.sellix.io) [2](https://cryptoscemm.sellix.io) for fake reviews and scam.
+To start, this guy scammed +200 people from his shop, sellix shop got terminated 2 times [first](https://cryptoscem.sellix.io) [second](https://cryptoscemm.sellix.io) for fake reviews and scam.
 
 ![cryptoscem](https://user-images.githubusercontent.com/103531256/174454376-e6d126e9-7cd0-46ba-9224-4c157026c36c.png)
 
