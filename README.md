@@ -1,5 +1,6 @@
 ## ðŸ‘‹ Welcome
-### Today I present to you the list of **all** scammers/skids on the market for Crypto/NFT scams.
+### Today I present to you my Expose list of **all** scammers/skids on the market for Crypto/NFT scams.
+
 
 
 - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [Github](https://github.com/devcryptoscem)
@@ -22,3 +23,13 @@ basic guy, no shop, just backdoor codes on github, repo boosting, that's all ðŸ¤
 Selling obfuscated code, scam and lying about making 10 ETH per day. Backdoor codes
 
 ![Trexon](https://user-images.githubusercontent.com/103531256/174454711-9641b8ce-edc1-462f-9641-6098a70c877c.png)
+
+
+---
+
+- `0xServices`
+*Deleted*
+Selling free codes on gihub, scam and backdoor codes
+
+
+
