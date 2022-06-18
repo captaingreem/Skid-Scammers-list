@@ -3,7 +3,7 @@
 This repositories will have **2** parts:
 #### 1️⃣ → Scammer list
 #### 2️⃣ → Dualwallet
-##### 💡 I will keep update
+### 💡 I will keep the repo update
 ---
 
 ## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [Github](https://github.com/devcryptoscem)
@@ -38,6 +38,19 @@ This repositories will have **2** parts:
 
 
 ---
+
+## - `Shade0x`[Github](https://github.com/Shade0x/NFT-Drainer-Website)
+### no shop, random guy but backdoor code on github.
+
+
+![Shade0x](https://user-images.githubusercontent.com/103531256/174455468-6ffa0a6a-6842-4f20-8179-28bd167de761.png)
+
+
+---
+
+
+
+
 
 
 
