@@ -29,7 +29,7 @@ Selling obfuscated code, scam and lying about making 10 ETH per day. Backdoor co
 
 - `0xServices`
 *Deleted*
-Selling free codes on gihub, scam and backdoor codes
+Selling Github free codes with backdoor, scam and backdoor codes
 
 
 ![0xServices](https://user-images.githubusercontent.com/103531256/174454940-b4e88044-b27d-46ba-a0ae-d1ec2f5df387.png)
