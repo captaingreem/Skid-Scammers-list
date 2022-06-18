@@ -16,8 +16,7 @@ This repositories will have **2** parts:
 ---
 
 ## - `C4lme | CCalme` [Github](https://github.com/C4lme)
-## 🕵️ other identities: RichOnSellix
-### basic guy, just backdoor codes on github, repo boosting, that's all 🤷‍♂
+### basic guy, no shop, just backdoor codes on github, repo boosting, that's all 🤷‍♂
 
 
 ![C4lme](https://user-images.githubusercontent.com/103531256/174454492-be035582-79e9-4743-aaaa-bee7c3b96e0b.png)
