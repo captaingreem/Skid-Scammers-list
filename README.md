@@ -3,7 +3,8 @@
 This repositories will have **2** parts:
 #### 1️⃣ → Scammer list
 #### 2️⃣ → Dualwallet
-### 💡 I will keep the repo update
+
+
 ---
 
 ## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [Github](https://github.com/devcryptoscem)
