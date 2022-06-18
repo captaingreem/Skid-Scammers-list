@@ -1,8 +1,8 @@
 ## 👋 Welcome
 ### Today I present to you my Expose list of **all** scammers/skids on the market for Crypto/NFT scams.
 This repositories will have **2** parts:
-#### → Scammer list
-#### → Dualwallet
+#### ① → Scammer list
+#### ② → Dualwallet
 
 ---
 
