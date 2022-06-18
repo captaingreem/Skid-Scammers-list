@@ -1,8 +1,11 @@
 ## 👋 Welcome
 ### Today I present you my Expose list of **all** scammers/skids on the market for Crypto/NFT scams.
-This repositories will have **2** parts:
 
-## **⚠️ Before purchasing anything on this market, please read this repo or you will get scam**
+
+## **⚠️ Before purchasing anything from NFT/Crypto Scam, please read this repo or you will get scam**
+
+
+This repositories will have **2** parts:
 
 #### 1️⃣ → Scammer list
 #### 2️⃣ → Informations about scammers
