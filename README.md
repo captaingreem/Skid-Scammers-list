@@ -6,7 +6,7 @@ This repositories will have **2** parts:
 
 
 
-- `CryptoScem` [Github](https://github.com/cryptoscemdev) | [Github](https://github.com/devcryptoscem)
+## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [Github](https://github.com/devcryptoscem)
 To start, this guy scammed +200 people from his shop, sellix shop got terminated 2 times [first](https://cryptoscem.sellix.io) | [second](https://cryptoscemm.sellix.io) for fake reviews and scam. **⚠️ Don't trust this indian**
 
 ![cryptoscem](https://user-images.githubusercontent.com/103531256/174454376-e6d126e9-7cd0-46ba-9224-4c157026c36c.png)
