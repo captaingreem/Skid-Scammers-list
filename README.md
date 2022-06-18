@@ -7,5 +7,10 @@ To start, this guy scammed +200 people from his shop, sellix shop got terminated
 
 ![cryptoscem](https://user-images.githubusercontent.com/103531256/174454376-e6d126e9-7cd0-46ba-9224-4c157026c36c.png)
 
+
+
 - [C4lme / CCalme](https://github.com/C4lme)
 basic guy, no shop, just backdoor codes on github, repo boosting, that's all 🤷‍♂
+
+
+![C4lme](https://user-images.githubusercontent.com/103531256/174454492-be035582-79e9-4743-aaaa-bee7c3b96e0b.png)
