@@ -64,7 +64,7 @@ This repositories will have **2** parts:
 ## - `Moneywithbots` [Github](https://github.com/moneywithbots)
 ### Selling nothing but uploaded backdoored code on github, all money will be send to his own wallet.
 
-![moneywithbots](https://user-images.githubusercontent.com/103531256/174460841-ec9e0562-902d-41d0-9520-20a8a5617e1f.png)
+![moneywithbots](https://user-images.githubusercontent.com/103531256/174460960-3560122b-efff-44b5-97e8-e3d97dbc394d.png)
 
 ---
 
