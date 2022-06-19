@@ -19,7 +19,7 @@ This repositories will have **2** parts:
 
 ---
 
-## - `C4lme | CCalme` [Github](https://github.com/C4lme)
+## • `C4lme | CCalme` [Github](https://github.com/C4lme)
 ### basic guy, no shop, just backdoor codes on github, repo boosting, that's all 🤷‍♂
 
 
