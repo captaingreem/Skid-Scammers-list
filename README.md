@@ -15,7 +15,7 @@ This repositories will have **2** parts:
 ## 🕵️ other identities: [Soleater](https://github.com/soleaterwebdev) | [Bumroom](https://github.com/bumroom) | [Fake alcxpone: alxapone](https://github.com/alxapone)
 ### To start, this guy scammed +200 people from his shop, sellix shop got terminated 2 times [first](https://cryptoscem.sellix.io) | [second](https://cryptoscemm.sellix.io) for fake reviews and scam. **⚠️ Don't trust this indian**
 
-![cryptoscem](https://user-images.githubusercontent.com/103531256/174454376-e6d126e9-7cd0-46ba-9224-4c157026c36c.png)
+![cryptoscem](https://user-images.githubusercontent.com/103531256/174461023-af396dee-23c1-434a-8912-b75297eaa9f6.png)
 
 ---
 
