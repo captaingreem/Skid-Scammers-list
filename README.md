@@ -27,7 +27,7 @@ This repositories will have **2** parts:
 
 ---
 
-## — `Trexon` [Github](https://github.com/Trexon-Drainers)
+## • `Trexon` [Github](https://github.com/Trexon-Drainers)
 ### Selling obfuscated code, scam and lying about making 10 ETH per day. Backdoor codes
 
 ![Trexon](https://user-images.githubusercontent.com/103531256/174454711-9641b8ce-edc1-462f-9641-6098a70c877c.png)
@@ -35,7 +35,7 @@ This repositories will have **2** parts:
 
 ---
 
-## - `0xServices` *Deleted*
+## • `0xServices` *Deleted*
 ### Selling Github free codes with backdoor, scam and backdoor codes
 
 
