@@ -1,4 +1,4 @@
-## 👋 Welcome
+## 👋 Welcome ![welcome](https://user-images.githubusercontent.com/103531256/174461147-b4cfc592-8852-46c9-92c6-e7cf08ad2ac1.gif)
 ### ⚠️ Before purchasing anything from NFT/Crypto Scam, please read this or you will get scam
 
 ---
