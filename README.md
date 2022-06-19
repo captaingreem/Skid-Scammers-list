@@ -59,6 +59,12 @@ This repositories will have **2** parts:
 
 ![NFTDrainerscam](https://user-images.githubusercontent.com/103531256/174455814-a78c7e3d-8928-4ed1-a635-f6ad67b2b09f.png)
 
+---
+
+## - `Moneywithbots` [Github](https://github.com/moneywithbots)
+### Selling nothing but uploaded backdoored code on github, all money will be send to his own wallet.
+
+![moneywithbots](https://user-images.githubusercontent.com/103531256/174460841-ec9e0562-902d-41d0-9520-20a8a5617e1f.png)
 
 ---
 
