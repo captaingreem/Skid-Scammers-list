@@ -56,7 +56,7 @@ This repositories will have **2** parts:
 ---
 
 ## - `NFTDrainerscam` [Github](https://github.com/CryptoRekt88) | [2nd Github](https://github.com/NFTstipsandtricks) (same person)
-### Selling soo expensive backdoored code like other but they reappropriate other people's scam articles
+### Selling soo expensive backdoored & skidded code like other but they reappropriate other people's scam articles
 
 
 ![NFTDrainerscam](https://user-images.githubusercontent.com/103531256/174455814-a78c7e3d-8928-4ed1-a635-f6ad67b2b09f.png)
@@ -75,9 +75,6 @@ This repositories will have **2** parts:
 
 
 ![Aby](https://user-images.githubusercontent.com/103531256/174456529-0d48ebba-7608-41db-89e5-8b6098c45a1f.png)
-
-
-
 
 
 
