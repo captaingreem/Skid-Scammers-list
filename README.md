@@ -70,7 +70,7 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 ---
 
 ## - `Moneywithbots` [Github](https://github.com/moneywithbots)
-### ***Backdoor wallet: `0x4Ad22B7bAc2E152Fa05e05166a57f98a96820D9b`***
+- ***Backdoor wallet: `0x4Ad22B7bAc2E152Fa05e05166a57f98a96820D9b`***
 ### Selling nothing but uploaded backdoored code on github, all money will be send to his own wallet.
 
 ![moneywithbots](https://user-images.githubusercontent.com/103531256/174460960-3560122b-efff-44b5-97e8-e3d97dbc394d.png)
