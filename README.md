@@ -36,7 +36,7 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 
 ---
 
-## - `Trexon` [Github](https://github.com/Trexon-Drainers)
+## - `Trexon` *Deleted*
 ### This guy is selling obfuscated code, scam and lying about making 10 ETH per day. Backdoor codes and gets humiliated like a shit on discord fanclub (https://t.me/doscord)
 
 ![Trexon](https://user-images.githubusercontent.com/103531256/174454711-9641b8ce-edc1-462f-9641-6098a70c877c.png)
@@ -62,7 +62,7 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 
 ---
 
-## - `NFTDrainerscam` [Github](https://github.com/CryptoRekt88) | [2nd Github](https://github.com/NFTstipsandtricks) (same person)
+## - `NFTDrainerscam` *Deleted* | *Deleted*
 ### Selling soo expensive backdoored & skidded code like other but they reappropriate other people's scam articles
 
 
