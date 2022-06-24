@@ -12,7 +12,7 @@ This repositories will have **2** parts:
 
 ---
 
-**Disclaimer:** *this repo was skidded by CryptoScem with false informations about Zentoh. Zentoh has only 1 github, @0x32Moon, he gave no proof because there are no one other, "terminated shop 2 times" is also false because this is not the terminated error, the shop is just not existing 🤡 Stay safe and beware of scams* ![chrome_bC3M3Yb7pF](https://user-images.githubusercontent.com/103531256/175574350-fe1148e7-469f-4a30-b510-8a0b972dd31e.png)
+**Disclaimer:** *this repo was skidded by CryptoScem [here](https://github.com/0xCryptix/list-of-scammers) with false informations about Zentoh. Zentoh has only 1 github, @0x32Moon, he gave no proof because there are no one other, "terminated shop 2 times" is also false because this is not the terminated error, the shop is just not existing 🤡 Stay safe and beware of scams* ![chrome_bC3M3Yb7pF](https://user-images.githubusercontent.com/103531256/175574350-fe1148e7-469f-4a30-b510-8a0b972dd31e.png)
 
 ## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [2nd Github](https://github.com/devcryptoscem)
 ## [click here for proofs](https://t.me/cryptoscemmm)
