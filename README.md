@@ -12,6 +12,10 @@ This repositories will have **2** parts:
 
 ---
 
+Disclaimer: this repositorie has been skidded by CryptoScem (skid/scammers)![chrome_wzwWTKLqQS](https://user-images.githubusercontent.com/103531256/175573647-ecd17f17-b43d-4b0b-b531-b2f1f0c5d03a.png) with false informations about Zentoh. Zentoh has only 1 github, @0x32Moon, he gave no proof because there are no one other, "terminated shop 2 times" is also false because this is not the terminated error, the just is sjust not existing 🤡 Stay safe and beware of scams ![chrome_jBdl3H7cov](https://user-images.githubusercontent.com/103531256/175573921-a5f0a101-3216-4157-9845-648c853103db.png)
+
+
+
 ## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [2nd Github](https://github.com/devcryptoscem)
 ## [click here for proofs](https://t.me/cryptoscemmm)
 ## 🕵️ other identities: [Soleater](https://github.com/soleaterwebdev) | [Bumroom](https://github.com/bumroom) | [Fake alcxpone: alxapone](https://github.com/alxapone)
