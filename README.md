@@ -1,5 +1,5 @@
 ## 👋 Welcome 
-![welcome](https://user-images.githubusercontent.com/103531256/174461147-b4cfc592-8852-46c9-92c6-e7cf08ad2ac1.gif)
+![welcome](https://i.pinimg.com/originals/70/f3/53/70f353a3fc4d912a10f35518feceaa8e.gif)
 ### **⚠️ Before purchasing anything from NFT/Crypto Scam, please read this or you will get scam**
 
 ---
