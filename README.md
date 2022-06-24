@@ -78,13 +78,10 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 
 ---
 
-## - `Aby` [Github](https://github.com/moneyxx)
-### Reselling free codes on github with backdoor in
+## - `CyberGhosted` [Github](https://github.com/cyberghosted-dev)
+### Scammer, reappropriate other site and wrost design ever x)
 
-
-![Aby](https://user-images.githubusercontent.com/103531256/174456529-0d48ebba-7608-41db-89e5-8b6098c45a1f.png)
-
-
+![CyberGhosted](https://user-images.githubusercontent.com/103531256/175609576-e840e126-def6-4ab5-beea-58278a70967b.png)
 
 
 ---
