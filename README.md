@@ -21,7 +21,7 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 
 ## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [2nd Github](https://github.com/devcryptoscem)
 - ***Backdoor wallet: `ETH 0xed5AFe2De60281D5247beC81E727C2af0B7d9c71` `SOL 7kV3wQkWJm47gWPqHqH4JGfRCz5JRH2e2wy7bV7kCYwc`| [ETH Link](https://gist.githubusercontent.com/cryptoscemdev/047aad3e2e43c4628f3557e10b468622/raw/774f8692f6143fae787eec05e03c492d28218d44/wallet.txt)***
-## [click here for proofs](https://t.me/cryptoscemmm)
+## [Click here to see the exposing channel](https://t.me/cryptoscemmm)
 ## 🕵️ other identities: [Soleater](https://github.com/soleaterwebdev) | [Bumroom](https://github.com/bumroom) | `Fake Alcxpone:` [Alxapone](https://github.com/alxapone)
 ### To start, this guy scammed **+200** people from his shop, sellix shop got terminated **2** times [first](https://cryptoscem.sellix.io) | [second](https://cryptoscemm.sellix.io) for fake/edit reviews and scam. **⚠️ Don't trust this indian ⚠️**
 
