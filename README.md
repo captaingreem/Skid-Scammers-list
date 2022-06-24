@@ -4,9 +4,10 @@
 
 ---
 
-This repositories will have **2** parts:
+This repositories will have **3** parts:
 
 #### 1️⃣ → Scammer list
+#### 3️⃣ → Backdoor wallet (uploaded on github only)
 #### 2️⃣ → Informations about scammers
 
 
