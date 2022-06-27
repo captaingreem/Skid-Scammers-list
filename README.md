@@ -13,7 +13,7 @@ This repositories will have **3** parts:
 
 ---
 
-#### **Disclaimer:** *this repo was skidded by CryptoScem [here](https://github.com/0xCryptix/list-of-scammers) with false informations about Zentoh. Zentoh has only 1 github, [0x32Moon](https://github.com/0x32Moon), he gave no proof because there are no one other, "terminated shop 2 times" is also fake because this is not the terminated error, the shop is just not existing 🤡 Stay safe and beware of scams* 
+#### **Disclaimer:** *this repo was skidded by CryptoScem [here](https://github.com/0xCryptix/list-of-scammers) with false informations about Zentoh. Zentoh has only 1 github, [0x32Moon](https://github.com/0x32Moon), he gave no one proof because there are no one other, "terminated shop 2 times" is also fake because this is not the terminated error, the shop is just not existing 🤡 Stay safe and beware of scams* 
 Zentoh is a good guy, also legit for paid things, that's just why I'm not talking him here
 
 ![Zentoh-Cryptoscem](https://user-images.githubusercontent.com/103531256/175576905-3d39f193-0ceb-49e4-ad61-375289aca6d8.png)
