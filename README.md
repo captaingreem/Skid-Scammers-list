@@ -21,7 +21,7 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 ![Zentoh-Cryptoscem](https://user-images.githubusercontent.com/103531256/175576905-3d39f193-0ceb-49e4-ad61-375289aca6d8.png)
 
 
-## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [2nd Github](https://github.com/devcryptoscem)
+## > `CryptoScem` [Github](https://github.com/cryptoscemdev) | [2nd Github](https://github.com/devcryptoscem)
 - ***Backdoor wallet: `ETH 0xed5AFe2De60281D5247beC81E727C2af0B7d9c71` `SOL 7kV3wQkWJm47gWPqHqH4JGfRCz5JRH2e2wy7bV7kCYwc`| [ETH Link](https://gist.githubusercontent.com/cryptoscemdev/047aad3e2e43c4628f3557e10b468622/raw/774f8692f6143fae787eec05e03c492d28218d44/wallet.txt)***
 ## [Click here to see the exposing channel](https://t.me/cryptoscemmm)
 ## 🕵️ other identities: [Soleater](https://github.com/soleaterwebdev) | [Bumroom](https://github.com/bumroom) | `Fake Alcxpone:` [Alxapone](https://github.com/alxapone)
