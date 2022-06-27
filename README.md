@@ -2,7 +2,7 @@
 ![welcome](https://i.pinimg.com/originals/70/f3/53/70f353a3fc4d912a10f35518feceaa8e.gif)
 
 > **Warning**
-> Before purchasing anything from NFT/Crypto Scam, please read this or you will get scam by those sellers
+> Before purchasing anything from NFT/Crypto Scam, please read this or you will get scam by those scammers.
 
 ---
 
