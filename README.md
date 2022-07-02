@@ -33,6 +33,7 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 
 ## - `C4lme | CCalme` [Github](https://github.com/C4lme)
 - ***Backdoor wallet: `0xc41A181F5A0Ec08A7a48A03d6a1230374bc54268`***
+## [Click here to see scam video proof](https://cdn.discordapp.com/attachments/987748605542666381/992909777548103713/c4lme.mp4)
 ### basic guy, no shop, just backdoor codes on github, repo boosting, that's all 🤷‍♂
 
 
