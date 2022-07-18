@@ -28,7 +28,7 @@ Zentoh is a good guy, also legit, that's why I'm not talking him here
 ## [🔗 Click here to see the exposing channel](https://t.me/cryptoscemmm)
 
 ## 🕵️ other identities: [Soleater](https://github.com/soleaterwebdev) | [Bumroom](https://github.com/bumroom) 
-##### `Fake Alcxpone:` [Alxapone](https://github.com/alxapone) | `Fake Tec:` [tecdrainers](https://github.com/tecdrainers)
+### `Fake Alcxpone:` [Alxapone](https://github.com/alxapone) | `Fake Tec:` [tecdrainers](https://github.com/tecdrainers)
 
 ### To start, this guy scammed **+200** people from his shop, sellix shop got terminated **4** times for fake/edit reviews and scam. **⚠️Don't trust this Indian Clown⚠️**
 ##### [first](https://cryptoscem.sellix.io) | [second](https://cryptoscemm.sellix.io) | [third](https://crypto-scem.sellix.io/) [fourth](https://web3eater.sellix.io/)
