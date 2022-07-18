@@ -23,7 +23,7 @@ Zentoh is a good guy, also legit, that's why I'm not talking him here
 ---
 
  ## - `CryptoScem` [Github](https://github.com/cryptoscemdev) | [2nd Github](https://github.com/devcryptoscem) | [3rd Github](https://github.com/nftdrainerscript)
-- ***Backdoor wallet: `ETH 0xed5AFe2De60281D5247beC81E727C2af0B7d9c71` `SOL 7kV3wQkWJm47gWPqHqH4JGfRCz5JRH2e2wy7bV7kCYwc`***
+- ***Backdoor wallet: `ETH 0xed5AFe2De60281D5247beC81E727C2af0B7d9c71` | `SOL 7kV3wQkWJm47gWPqHqH4JGfRCz5JRH2e2wy7bV7kCYwc`***
 
 ## [Click here to see the exposing channel](https://t.me/cryptoscemmm)
 
@@ -55,7 +55,7 @@ Zentoh is a good guy, also legit, that's why I'm not talking him here
 
 ---
 
-## - `NFTDrainerscam` *Deleted* | *Deleted*
+## - `NFTDrainerscam` *Deleted*
 - ***Backdoor wallet: `0x00CB037C4525366374ad14f60691AF104670873e` | [Link](https://gist.githubusercontent.com/goolix/86fc7c9f1403d98651b180d6788f6c45/raw/faeb80ee67c65ef53f8168443e008bfb0934614e/codex)***
 ### Selling soo expensive backdoored & skidded code like other but they reappropriate other people's scam articles
 
