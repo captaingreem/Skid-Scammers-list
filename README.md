@@ -12,6 +12,9 @@ This repositories will have **3** parts:
 #### 3️⃣ → Backdoor wallet (uploaded on github only)
 #### 2️⃣ → Informations about scammers
 
+---
+
+Note: I stay available personally for people want to report me another scammers that are not on the list or ask any question
 
 ---
 
@@ -30,7 +33,7 @@ Zentoh is a good guy, also legit, that's why I'm not talking him here
 ## 🕵️ other identities: [Soleater](https://github.com/soleaterwebdev) | [Bumroom](https://github.com/bumroom) 
 ### `Fake Alcxpone:` [Alxapone](https://github.com/alxapone) | `Fake Tec:` [tecdrainers](https://github.com/tecdrainers) | `Fake 0x32Moon:` [0x32Moons](https://github.com/0x32Moons)
 
-### To start, this guy scammed **+200** people from his shop, sellix shop got terminated **4** times for fake/edit reviews and scam. **⚠️Don't trust this Indian Clown⚠️**
+### To start, this guy scammed **+200** people from his shop, also his shops got terminated **4** times for fake/edit reviews and scam. **⚠️Don't trust this Indian Clown⚠️**
 ### [first](https://cryptoscem.sellix.io) | [second](https://cryptoscemm.sellix.io) | [third](https://crypto-scem.sellix.io/) | [fourth](https://web3eater.sellix.io/)
 
 ![cryptoscem](https://user-images.githubusercontent.com/103531256/174461023-af396dee-23c1-434a-8912-b75297eaa9f6.png)
