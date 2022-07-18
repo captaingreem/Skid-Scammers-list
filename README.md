@@ -15,6 +15,7 @@ This repositories will have **3** parts:
 ---
 
 #### ***Note:*** I stay available personally for people want to report me another scammers that are not on the list or ask any question
+![Telegram](https://user-images.githubusercontent.com/103531256/179599221-b5200c0e-8558-45ff-8732-1658ca2e5282.png) https://t.me/faible
 
 ---
 
