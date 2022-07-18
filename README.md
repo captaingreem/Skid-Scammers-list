@@ -66,7 +66,15 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 
 ---
 
-## - `0xServices` *Deleted all*
+## - `Moneywithbots` [Github](https://github.com/moneywithbots)
+- ***Backdoor wallet: `0x4Ad22B7bAc2E152Fa05e05166a57f98a96820D9b`***
+### Selling nothing but uploaded backdoored code on github, all money will be send to his own wallet.
+
+![moneywithbots](https://user-images.githubusercontent.com/103531256/174460960-3560122b-efff-44b5-97e8-e3d97dbc394d.png)
+
+---
+
+## - `0xServices` *Deleted but his shop is online, beware*
 ### Selling Github free codes with backdoor, scam and backdoor codes
 
 
@@ -81,14 +89,6 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 
 
 ![Shade0x](https://user-images.githubusercontent.com/103531256/174461099-48182473-19bf-4b14-9dda-e1a54f1aba6e.png)
-
----
-
-## - `Moneywithbots` [Github](https://github.com/moneywithbots)
-- ***Backdoor wallet: `0x4Ad22B7bAc2E152Fa05e05166a57f98a96820D9b`***
-### Selling nothing but uploaded backdoored code on github, all money will be send to his own wallet.
-
-![moneywithbots](https://user-images.githubusercontent.com/103531256/174460960-3560122b-efff-44b5-97e8-e3d97dbc394d.png)
 
 ---
 
