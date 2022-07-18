@@ -58,6 +58,14 @@ Zentoh is a good guy, also legit for paid things, that's just why I'm not talkin
 
 ---
 
+## - `ghanaShark` [Github](https://github.com/xcevexx)
+- ***Backdoor wallet: `0x7ab7B197A8C22c84103D44EEa30622c0309D9582`***
+### Skid, dick sucker and putting backdoored code on github, Let's delete his webhook!
+
+![ghanaShark](https://user-images.githubusercontent.com/103531256/179581145-88819d57-73b7-45bf-9510-2f0c9f966e5a.png)
+
+---
+
 ## - `0xServices` *Deleted all*
 ### Selling Github free codes with backdoor, scam and backdoor codes
 
